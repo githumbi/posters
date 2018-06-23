@@ -1,2 +1,2 @@
 # posters
-PSD Posters for Entertainment, Restaurants, Political Governmentale.t.c
+PSD Posters for Entertainment, Restaurants, Political Governmental e.t.c
